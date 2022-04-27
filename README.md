@@ -29,6 +29,9 @@ Saviour Isaiah
 Angela Chiamaka
 SH-IT-0009376
 
+Adejumoke Adekoya
+SH-IT-0088130
+
 We thank the management of Side Hustle for the opportunity given to us to acquire a skill and connect with other learners from all over the country.
 
 We appreciate our mentor for her guidance through this track.
